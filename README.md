@@ -1,0 +1,1 @@
+# GiliSoft-Screen-Recorder-Pro-Latest-Patch
